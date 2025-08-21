@@ -5,6 +5,7 @@
 - 📫 How to reach me: Smk.cabrera1996@hotmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I actually have my bachelor's degree in zoology, and I used to be a zookeeper! 
+- I am an avid gamer too! Currently loving JRPGS and MMOs
 
 <!---
 CabreraCode-0b11/CabreraCode-0b11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
